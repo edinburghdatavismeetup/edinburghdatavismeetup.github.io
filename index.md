@@ -15,3 +15,4 @@ Anyone interested in the process and product of more effectively and ingeniously
 
 # Past Events
 
+[Human Made Visualization](https://www.meetup.com/meetup-group-vBHbCmgh/events/266630835)
